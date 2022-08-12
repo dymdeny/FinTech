@@ -1,3 +1,3 @@
 # FinTech is 
 ##VERY
-###Important indastry
+###Important industry
